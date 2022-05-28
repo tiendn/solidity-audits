@@ -1,0 +1,1 @@
+# Explaination for scam smartcontract 1
